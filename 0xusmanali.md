@@ -1,6 +1,6 @@
 # Muhammad Usman Ali
 
-📈 Experienced Crypto and Forex Trader 🌐
+📈 Crypto and Forex Trader 🌐
 
 Welcome to my GitHub profile! I'm Muhammad Usman Ali, an accomplished trader with a passion for navigating the exciting and dynamic world of cryptocurrencies and forex markets. With years of experience under my belt, I specialize in helping individuals and investors make informed decisions to maximize their trading potential.
 
